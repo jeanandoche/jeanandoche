@@ -1,5 +1,5 @@
 <center>
-  <p>ehhh my name is alexandré i'm 18 i use he/him pronouns</p>
+  <p>ehhh my name is alexandre i'm 18 i use he/him pronouns</p>
   <p><b>fandoms:</b> napoleonic wars, french revolution, harry potter, marauders, peacemaker</p>
   <br>
   <p><b>I DO NOT CONDONE THE ACTIONS OF ANY HISTORICAL FIGURES I POST / TALK ABOUT</b>
