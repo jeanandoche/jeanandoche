@@ -1,15 +1,7 @@
 <center>
-  <div>
-    <img src="https://64.media.tumblr.com/385b77e7356793507310c05a39db2ddd/b0853445eed2f661-47/s100x200/6131358e55883806f645ffe5e90787f2e51435cf.pnj" height="100%">
-    <img src="" height="100%">
-    <img src="" height="100%">
-    <img src="" height="100%">
-    <img src="" height="100%">
-    <img src="" height="100%">
-    <img src="" height="100%">
-  </div>
-  </br>
-  <p>ehhh my name is alexandré and i'm very fixated on the napoleonic wars and anything preceeding the 21st century in regards to literature and history</p>
+  <p>ehhh my name is alexandré i'm 18 i use he/him pronouns</p>
+  <p><b>fandoms:</b> napoleonic wars, french revolution, harry potter, marauders, peacemaker</p>
+  <br>
   <p><b>I DO NOT CONDONE THE ACTIONS OF ANY HISTORICAL FIGURES I POST / TALK ABOUT</b>
   <br>
   also do not fucking interact with me if you're a neo-nazi?? hello?? no one like that has int'd before thank god but i feel the need to put it out there regardless</p>
