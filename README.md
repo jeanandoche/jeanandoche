@@ -1,6 +1,6 @@
 <center>
-  <p>ehhh my name is alexandre i'm 18 i use he/him pronouns</p>
-  <p><b>fandoms:</b>lobotomy corporation, library of ruina, limbus company  +  napwars, frev</p>
+  <p>my name is alex i'm 18 i use he/him pronouns</p>
+  <p><b>fandoms: </b>lobotomy corporation, library of ruina, limbus company  +  napwars, frev</p>
   <br>
   <p><b>I DO NOT CONDONE THE ACTIONS OF ANY HISTORICAL FIGURES I POST / TALK ABOUT</b>
   <br>
